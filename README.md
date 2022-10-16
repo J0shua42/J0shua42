@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Joshua
+- 💞️ I love hacking
